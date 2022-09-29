@@ -1,0 +1,2 @@
+# jarkomB
+Repositori Jarkom B
